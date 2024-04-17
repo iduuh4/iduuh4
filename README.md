@@ -1,4 +1,4 @@
-### Olá! Eu sou o Carlos Eduardo, um prazer você por aqui! 😄👾
+### Olá! Eu sou o Carlos Eduardo, um prazer ter você por aqui! 😄👾
 
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/carlous01/)
 
